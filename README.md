@@ -1,0 +1,1 @@
+# minsalud-gob-bo.ga
